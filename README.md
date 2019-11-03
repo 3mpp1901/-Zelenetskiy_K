@@ -1,2 +1,2 @@
-# -Zelenetskiy_K
+# Zelenetskiy_K
  Student: Zelenetskiy K
